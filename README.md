@@ -24,8 +24,8 @@
 
 ## 📞 Contato
 
-📧 seuemail@email.com  
-📱 WhatsApp: (seu número)
+📧 rh.nextechsolutions@gmail.com
+📱 WhatsApp: (67) 93487826
 
 ---
 
